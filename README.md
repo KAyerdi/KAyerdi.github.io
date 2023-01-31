@@ -1,3 +1,0 @@
-# KAyerdi.github.io
-
-PROBANDO
